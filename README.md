@@ -1,1 +1,1 @@
-</p> <img  width="736" height="553" alt="Untitled130_20260610124548__fliter--red-sunset__channel--red__mode--color" src="https://github.com/user-attachments/assets/50e27511-85c8-402a-b542-eb588c72a7dd" /> 
+<p align=center> <img  width="736" height="553" alt="Untitled130_20260610124548__fliter--red-sunset__channel--red__mode--color" src="https://github.com/user-attachments/assets/50e27511-85c8-402a-b542-eb588c72a7dd" /> 
